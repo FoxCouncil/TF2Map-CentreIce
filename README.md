@@ -1,4 +1,4 @@
-# TF2Map-CentreIce
+# TF2 Map - Centre Ice
 OLD - LOST - FOUND
 
 [Images Album](http://imgur.com/a/VO3ug)
